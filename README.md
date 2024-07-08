@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Muhammad-Naqash  
 - 👀 I’m interested in Machine Learning, Python Programming and Data Science
 - 🌱 I’m currently learning ML, python and Data Science
-- 📫 How to reach me on my LinkedIn Profile
+- 📫 To reach me follow and contact me on my LinkedIn account www.linkedin.com/in/muhammad-naqash-27215122a
